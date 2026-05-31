@@ -1,1 +1,1 @@
-Auto Update IPTV in 2026-05-31 21:49:00 CST
+Auto Update IPTV in 2026-06-01 01:08:29 CST
